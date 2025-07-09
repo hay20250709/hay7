@@ -10,4 +10,4 @@
 
 本页面为用户提供高清在线资源，涵盖各种剧情视频及自慰、丝袜等多种内容，特别适合喜欢刺激、激情内容的用户。所有资源均可一键播放，支持多种设备观看，确保流畅体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay7 ）</span>
